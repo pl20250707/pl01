@@ -13,6 +13,6 @@
 最大亮点是无广告，没有烦人的弹窗和强制会员推送，专心享受影片。数据加密保护隐私，无需注册，完全匿名观看。
 简便、安全、高清、无广告的免费观影体验，选择我们就是最佳选择。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/pl20250707/pl01 ）</span>
 
 
